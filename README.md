@@ -1,1 +1,1 @@
-![](https://count.getloli.com/get/@4d3p-dev?theme=* random)  
+![](https://count.getloli.com/get/@4d3p-dev?theme=*random)  
